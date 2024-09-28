@@ -7,7 +7,7 @@
  💞️ I’m looking to collaborate on:
             projects
  📫 How to reach me:
-         huzaifashaheen1203@gmail.com
+         huzaifashaheen.1203@gmail.com
  😄 Pronouns:Her
 
 
